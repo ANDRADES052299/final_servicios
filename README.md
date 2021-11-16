@@ -1,0 +1,1 @@
+aprovicionamiento parcial
